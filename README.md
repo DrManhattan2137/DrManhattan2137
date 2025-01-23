@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Bobby Sprocket
 - 👀 I’m interested in ...AI
 - 🌱 I’m currently learning ...AI
-- 💞️ I’m looking to collaborate on ...Various Projects 
+- 💞️ I’m looking to collaborate on ...Various Cloud Related Projects
 - 📫 How to reach me ...dr.manhattan2137@gmail.com
 - 😄 Pronouns: ...Alien
 - ⚡ Fun fact: ...I love Tofu 
